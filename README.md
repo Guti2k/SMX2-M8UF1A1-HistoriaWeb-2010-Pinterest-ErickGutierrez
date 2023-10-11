@@ -6,3 +6,6 @@
 
 # Ben Silbermann
 ![Pinterest](https://cdn.businessinsider.es/sites/navi.axelspringer.es/public/media/image/2018/11/pinterest-cofounder-and-ceo-ben-silbermann.jpg?tf=3840x)
+
+# Evan Sharp
+![Pinterest](https://i.pinimg.com/280x280_RS/7b/e9/47/7be9479d9894330d767dd7a213d4fbb7.jpg)
