@@ -5,7 +5,7 @@
  ![Pinterest](https://graffica.info/wp-content/uploads/2017/08/badgeRGB-512x452.png)
 
 ###  ¿Quien creo Pinterest?
-Pinterest fue creado por Ben Silbermann, Paul Sciarra y Evan Sharp. Que fueron empleados 
+Pinterest fue creado por Ben Silbermann, Paul Sciarra y Evan Sharp. Que fueron empleados de Google antes de fundar de Pinterest. 
 
 # Fundadores
 ![Pinterest](https://subalehaylugar.com/wp-content/uploads/2012/04/pinterest-founders.jpg)
